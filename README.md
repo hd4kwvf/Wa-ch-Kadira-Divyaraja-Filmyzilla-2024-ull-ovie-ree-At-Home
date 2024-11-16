@@ -5,9 +5,9 @@
 
 Still Now Here Option’s to Downloading or watching Kadira Divyaraja streaming the full movie online for free. Do you like movies? If so, then you’ll love New Movie: Kadira Divyaraja. This movie is one of the best in its genre. #Kadira Divyaraja will be available to watch online on Netflix's very soon!
 
-### [➤ Watch Now ✅➤➤ Kadira Divyaraja (2024) Fullmovie Online](https://yeshq.biz/en/movie/784651)
+### [➤ Watch Now ✅➤➤ Kadira Divyaraja (2024) Fullmovie Online](https://yeshq.biz/en/movie/1162357)
 
-### [➤➤ Download ✅➤➤ Kadira Divyaraja (2024) Fullmovie Online HD](https://yeshq.biz/en/movie/784651)
+### [➤➤ Download ✅➤➤ Kadira Divyaraja (2024) Fullmovie Online HD](https://yeshq.biz/en/movie/1162357)
 
 
 Where to Watch Kadira Divyaraja: Your Guide to India's High-Octane Aerial Action Film
